@@ -20,3 +20,15 @@ You can use 500g packets of minced meat, and will easily satisfy 4 people.
 * Salt & Pepper
 
 # Getting Started
+
+## Step 1. Preparing the ingredients
+
+Finely chop the garlic, onion and parsely. The finer the better, since large chunks of onion will stop your Cevaps holding together when it comes to shaping them.
+
+Turn the lamb and pork ( or your meat of choice ) out into a medium mixing bowl ( you're going to want to fit it into the fridge ) and gently mix them together with a spoon. Don't squish or compress them, you want your mixture to be loose and airy so the flavours can permeate overnight.
+
+## Step 2. Fold in the onion, garlic and parsely
+
+Toss your onion, garlic and parsely on top of the meat and continue to fold it in, again be gentle with the mixture and keep it loose and airy.
+
+# Step 3. Season to taste
